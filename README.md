@@ -1,1 +1,1 @@
-# TedXManitBhopall
+TEDx MANIT
